@@ -1,1 +1,1 @@
-https://layanancsrupiahcepatlink.com
+https://layanancsrupiahcepat.link
